@@ -1,5 +1,15 @@
 Albacore
 ========
+
+
+GROTEDE - Are you here?!?!?!? - majic
+
+
+
+
+
+
+
 * next fish is bass or betta splendans (fighting fish)
 
 TODO:
